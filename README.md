@@ -10,7 +10,7 @@
   <img src="https://profile-counter.glitch.me/Diyorbek_Baxshullayev/count.svg" />
 </p>
 
-# [Jumaqulov Rustambek!](baxshullayevd4@gmail.com) Social networks
+# [Diyorbek Baxshullayev!](baxshullayevd4@gmail.com) Social networks
 
 <a href="https://github.com/DiyorbekBaxshullayev"><img src="https://img.shields.io/badge/github-000?style=for-the-badge&logo=github&logoColor=white"/></a>
 <a href="https://instagram.com/diyorbekbaxshullayev027"><img src="https://img.shields.io/badge/instagram-D1001F?style=for-the-badge&logo=instagram&logoColor=white"/></a>
