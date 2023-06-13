@@ -35,4 +35,4 @@
 
 
 - **🔴 Visit My Instagram Accout [@diyorbekbaxshullayev027](https://www.instagram.com/Diyorbek_0086/)**
-- **🔵 Chat with me on Telegram Messanger [@Diyorbek_0086](https://t.me/Diyorbek_0086)**
+- **🔵 Chat with me on Telegram Messanger [@Diyorbek_0086](https://t.me/Diyorbek_0086)** 
