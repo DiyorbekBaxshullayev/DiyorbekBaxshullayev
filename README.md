@@ -3,7 +3,7 @@
 
 ![DiyorbekBaxshullayev's github stats](https://github-readme-stats.vercel.app/api?username=DiyorbekBaxshullayev&show_icons=true&theme=tokyonight)
 
-[![CodeWars](https://www.codewars.com/users/Diyorbek_Baxshullayev/badges/large)]([https://www.codewars.com/users/Diyorbek_Baxshullayev(https://www.codewars.com/users/Diyorbek_Baxshullayev))
+[![CodeWars](https://www.codewars.com/users/Diyorbek_Baxshullayev/badges/large)]([https://www.codewars.com/users/Diyorbek_Baxshullayev(https://www.codewars.com/users/Diyorbek_Baxshullayev)])
 
 <p align="center"> 
   Visitor count<br>
