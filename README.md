@@ -31,7 +31,7 @@
 
 ## About Me
 
-### Hi there 👋. I'm Diyorbek and I'm from [UZBEKISTAN🇺🇿](https://en.wikipedia.org/wiki/Uzbekistan). I'm 19 y.o. I study at [TATU ![image](https://user-images.githubusercontent.com/105332906/206888050-f68457da-1397-4adb-b063-d0c73ba28c67.png)](https://tuit.uz/)
+### Hi there 👋. I'm Diyorbek and I'm from [UZBEKISTAN🇺🇿](https://en.wikipedia.org/wiki/Uzbekistan). I'm 20 y.o. I study at [TATU ![image](https://user-images.githubusercontent.com/105332906/206888050-f68457da-1397-4adb-b063-d0c73ba28c67.png)](https://tuit.uz/)
 
 
 - **🔴 Visit My Instagram Accout [@diyorbekbaxshullayev027](https://www.instagram.com/Diyorbek_0086/)**
